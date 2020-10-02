@@ -10,9 +10,12 @@ bom dia :)
 bom dia :)
 Rui A.
 
+Tiago S.
+
 Simao
 
 RubenX
 
 Rafa M.
 Prof.ana Ferreira
+
